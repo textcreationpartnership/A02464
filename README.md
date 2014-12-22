@@ -36,411 +36,63 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Against Ierome Osorius Byshopp of Siluane in Portingall and against his slaunderous inuectiues An au
+
+1. To the Christian Reader.
+
+1. To the right honorable and my very good Lord Phillippe Earle of Arundell, grace, peace, and spirituall consolation in Christ Iesu.
+
+1. ¶ To the most Renowmed and Puissaunt Prince Sebastian king of Portingall euerlasting grace, peace, and most prosperous Reigne in our Lord and Sauiour Iesus Christ.
+
+1. ¶Faultes escaped in them printyng with correction of the same. Wherein note that the figures direct to the Foland and A. B. to the first and second Page.
+
+1. To the godly Reader Walter Haddon sendeth greetyng in our Lord Iesu Christ
+
 #####Body#####
 
-1. ¶Of Predestination and Freewill.
+1. ¶An Aunswere of Walter Haddon, to the rayling Inuectiues of Ierome Osorius.
+
+1. The second Booke.
+
+1. The residue aunswered by I. F. begynnyng where Maister Haddon left agaynst Osorius.
+
+    _ ¶Of Predestination and Freewill.
 ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We wAn other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede froOsorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolutOsorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
+    _ ¶A Breuiate of all Luthers doctrine of Freewill and Predestination gathered out of his bookes: And withall the contrary Argumentes of the aduersaries and the solution of the same.
+
+    _ ¶The Argumentes of the aduersaries agaynst the foresayd Assertions propounded and confuted.
+
+    _ The Cauillacions of the Aduersaries wherewith they do impugne the doctrine of predestination, as altogether vnprofitable and superfluous for edification and Iustitution of good lyfe.
+
+1. ¶The thyrd Booke.
+
+    _ ¶ A description of the Antiquities of Rome out of the Chronographers. Martine Mounck of Chester, Rodulpe, Platina. Volaterranus. Blondus. Sabellicus. Phrigio. Mercator. Antonyne Cardinall Benno. Barnes Hermane.
+
+    _ God be mercifull vnto thee good Brother.
+
+    _ ¶ Popish Purgatory.
 ¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+    _ Masses and Sacrifices.
+
+    _ The Reasons of the Aduersaries wherewith they maynteyne their Altars and Sacrifices so Iustelye.
 ¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+      * An Argument out of Malachy.
 The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+    _ ¶ Romish Reliques.
 
-    _ Maior.
+      * Maior.
 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+      * Minor.
 
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+      * Conclusion.
 ¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+      * ¶ Lett vs pray.
 
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. ¶A Breuiate of all Luthers doctrine of Freewill and Predestination gathered out of his bookes: And withall the contrary Argumentes of the aduersaries and the solution of the same.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. ¶The Argumentes of the aduersaries agaynst the foresayd Assertions propounded and confuted.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. The Cauillacions of the Aduersaries wherewith they do impugne the doctrine of predestination, as altogether vnprofitable and superfluous for edification and Iustitution of good lyfe.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. ¶ A description of the Antiquities of Rome out of the Chronographers. Martine Mounck of Chester, Rodulpe, Platina. Volaterranus. Blondus. Sabellicus. Phrigio. Mercator. Antonyne Cardinall Benno. Barnes Hermane.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. God be mercifull vnto thee good Brother.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. ¶ Popish Purgatory.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. Masses and Sacrifices.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. The Reasons of the Aduersaries wherewith they maynteyne their Altars and Sacrifices so Iustelye.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-1. ¶ Romish Reliques.
-¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, ta
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Sithence we haue now layd this foundation for our better furniture to be able to make aunswere: We w
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-An other Argument touchyng rewardes and punishmentes.For as much as vertue and vyce doe proceede fro
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.Osor. cauill Pag. 151.Whosoeuer do attribute the orderyng of all thynges to absolut
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-Osorius Argument.God doth not take away freedome from mans will, nor is Authour of euill: but euery 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶An other Argument.Peter doth treate of those afflictions, which doe beginne at the house of God, an
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶ An other argument.An other Arugment of the aduersariesThe outward Priesthood doth require an outwa
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ An Argument out of Malachy.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-The same Argument in a forme Logicall,In the new testament suche a sacrifice must remayne as may be 
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Maior.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Minor.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ Conclusion.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-¶Osorius Argument out of the Tridentine councell.An Argument of the Tridentine Councell agaynst righ
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
-
-    _ ¶ Lett vs pray.
-
-      * ¶ A Description of Freewill, and the thynges apperteinyng thereunto after the rules of Diuinitie, taken out of August. P. Lombard an• others.
+1. A knitting vp to the Reader.
 
 #####Back#####
-Against Ierome Osorius Byshopp of Siluane in Portingall and against his slaunderous inuectiues An au
+AT LONDON Printed by Iohn Daye dwellyng ouer Aldersgate.Cum Gratia & Priuilegio Regiae Maiestatis.An
 **Types of content**
 
   * There are 15 **verse** lines!
